@@ -2,21 +2,21 @@
 
 ### Description
 
-Repository for Lab Activities in Web System and Technologies
+Repository for Web System and Technologies
 ### Activities
 
 Activity 1
 
 ### Members
-- Aguirre Jacky-Lyn V.
+❤️ Aguirre Jacky-Lyn V. 
 
-- Emnil, Medea D.
+💛 Emnil, Medea D.
 
-- Escurel, Alessandra Micaela E.
+💚 Escurel, Alessandra Micaela E.
 
-- Espena, Shiela Mae B.
+🩷 Espeña, Shiela Mae B.
 
-- Felicidario, Ma. Patricia E.
+🧡 Felicidario, Ma. Patricia E.
 
 ### Acknowledgements
 
