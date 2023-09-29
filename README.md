@@ -14,7 +14,7 @@ Activity 1
 
 💚 Escurel, Alessandra Micaela E.
 
-🩷 Espeña, Shiela Mae B.
+💜 Espeña, Shiela Mae B.
 
 🧡 Felicidario, Ma. Patricia E.
 
