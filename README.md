@@ -7,6 +7,8 @@ Repository for Web System and Technologies
 
 Activity 1
 
+Activity 3
+
 ### Members
 ❤️ Aguirre Jacky-Lyn V. 
 
